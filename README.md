@@ -1,1 +1,1 @@
-# cozinc.github.io
+我已跑路，为了喜欢的人。
